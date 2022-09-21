@@ -1,5 +1,4 @@
 # checkout_1
-
-Fredy Ospina
 Angela Jimenez :zany_face:
+Fredy Ospina :scream:
 Maria Camila Soto
