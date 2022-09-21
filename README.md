@@ -1,5 +1,9 @@
 # checkout_1
 
-Fredy Ospina :scream:
-Angela Jimenez
-Maria Camila Soto
+***Visual Studio Code, terminal***
+
+xxxxxxxxxxxxx
+
+
+![imagen](https://es.123rf.com/photo_31393362_peque%C3%B1o-diablo.html?vti=n78rqriu8wp7byiv42-1-2)
+
